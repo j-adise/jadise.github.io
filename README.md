@@ -1,1 +1,0 @@
-# jadise.github.io
